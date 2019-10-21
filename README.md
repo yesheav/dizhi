@@ -11,6 +11,7 @@
 - [加速四站](https://yeshe.gq "yeshe.gq")
 - [加速五站](https://yeshe.cf "yeshe.cf")
 - [富婆香港](https://fpjy.org "fpjy.org")
+- [富婆加速](https://www.fpjy.org "www.fpjy.org")
 - [富婆一站](http://www.cn-xgd.com "www.cn-xgd.com")
 - [富婆二站](http://www.gaysexhow.com "www.gaysexhow.com")
 - [富婆三站](http://www.sl-168.com "www.sl-168.com")
