@@ -13,5 +13,5 @@
 - [夜射发布站](https://www.yeshefb.com "www.yeshefb.com")
 - [夜射导航站](https://www.yeshedh.com "www.yeshedh.com")
 - [司机导航站](https://www.sijidh.com "www.sijidh.com")
-
-##### (大陆用香港/东京节点，境外用CloudFlare加速地址，若此地址无法打开，请尝试清除浏览器缓存或等待更新)
+#####遭遇劫持？无法播放？点击帮助(https://www.yeshefb.com/help/)
+##### (若此地址无法打开，请尝试清除浏览器缓存或等待更新)
