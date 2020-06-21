@@ -1,7 +1,8 @@
 ### 夜射最新网址
 #### 请使用快捷键CTRL + D 保存此页。
 
-- [最新地址](https://www.ydlxfm.com "www.ydlxfm.com")
+- [日本线路](https://www.ydlxfm.com "www.ydlxfm.com")
+- [全球线路](https://v.ydlxfm.com "www.ydlxfm.com")
 
 - [夜射发布站](https://www.yeshefb.com "www.yeshefb.com")
 
